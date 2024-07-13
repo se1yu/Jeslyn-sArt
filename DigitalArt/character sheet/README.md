@@ -3,4 +3,6 @@
 - Progress pic 1 [file](https://drive.google.com/file/d/1sCzuZhJfHzOlbiw4lISmkVSWWoqVYGiV/view?usp=sharing)
 ![image](https://github.com/user-attachments/assets/70c24812-ad72-4e5b-a505-6ffba9e5f538)
 
+- Progress pic 2 [file](https://drive.google.com/file/d/1mw2E-ARAw6xM1bofbMwjecrmZrx1CBLY/view?usp=sharing)
 
+![image_480](https://github.com/user-attachments/assets/da949ded-12f3-40f8-91d7-4131ee3e3048)
