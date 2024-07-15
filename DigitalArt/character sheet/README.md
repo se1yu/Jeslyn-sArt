@@ -22,3 +22,6 @@
 
 - Progress pic 7 [file](https://drive.google.com/file/d/1Cx4Y2XMZTewXM5jLuM19M-O7pUJDfQ9V/view?usp=sharing) 
 ![image_720](https://github.com/user-attachments/assets/86d945ea-a277-4832-ac9c-4f19baf52c77)
+
+-Progress pic 8 [file](https://drive.google.com/file/d/1HssxnzYUjZ858KP2lsRfTZeOYMRYkGLq/view?usp=sharing)
+![image_720](https://github.com/user-attachments/assets/3b9a6ed5-aa83-4f5a-b703-273bd8b91547)
