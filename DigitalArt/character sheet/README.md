@@ -28,3 +28,6 @@
 
 - Progress pic 9 [file](https://drive.google.com/file/d/1rg--64dT_tDVfDm-M2ZgUGCir7JnbInU/view?usp=sharing)
 ![image_720](https://github.com/user-attachments/assets/f20d70ad-2eb8-4dd2-bfbe-224719dd1c1e)
+
+- Progress pic 10 [file](https://hackclub.slack.com/files/U0594US6E73/F07CF0UTG3X/character_sheet.clip) note: files transferred to hack club slack because my google drive is overflowing..too large to store every hour
+![image_720](https://github.com/user-attachments/assets/43463e46-fea3-482b-9c01-3ba0649a5ac0)
