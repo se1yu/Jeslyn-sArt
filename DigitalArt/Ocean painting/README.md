@@ -10,3 +10,7 @@ https://hackclub.slack.com/files/U0594US6E73/F07CQDSR2P4/thumbnail.clip
 - Rough color blocking + piano sketch [file](https://hackclub.slack.com/files/U0594US6E73/F07D99Z094J/waves.clip)
 
 ![image_720](https://github.com/user-attachments/assets/336a38bb-9992-48cc-9399-2bd7cc3ef5bd)
+ 
+- Rough highlights in waves + wave detail? many revisions were made here [file](https://hackclub.slack.com/files/U0594US6E73/F07D6MCV9BP/waves.clip)
+
+![image](https://github.com/user-attachments/assets/6f36bd4e-4594-45d9-94e9-69a83cd23be6)
