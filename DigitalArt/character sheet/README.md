@@ -1,4 +1,4 @@
-# Making an Oc with outfits + character sheets
+![image_720](https://github.com/user-attachments/assets/2e1b18c7-3ff2-4361-8cbd-6b98b9bd0acd)# Making an Oc with outfits + character sheets
 - note: all clip studio paint (software) files are on Google Drive link because I have passed GitHub's LFS limit
 - Progress pic 1 [file](https://drive.google.com/file/d/1sCzuZhJfHzOlbiw4lISmkVSWWoqVYGiV/view?usp=sharing)
 ![image](https://github.com/user-attachments/assets/70c24812-ad72-4e5b-a505-6ffba9e5f538)
@@ -35,3 +35,8 @@
 - Progress pic 11 [file](https://hackclub.slack.com/files/U0594US6E73/F07DJ579RLG/character_sheet.clip)
 ![image_480](https://github.com/user-attachments/assets/63f901a4-1784-4f68-bfd4-e6c69140c511) 
 ![image_720](https://github.com/user-attachments/assets/f6abe62b-07a4-4e0a-9478-47d98fc1f93a)
+
+-progress pic 12 [file](https://hackclub.slack.com/files/U0594US6E73/F07EE1D0WG3/character_sheet.clip)
+
+![image](https://github.com/user-attachments/assets/115e22bc-fc83-472f-ace6-f34efe9a0792)
+
