@@ -36,7 +36,13 @@
 ![image_480](https://github.com/user-attachments/assets/63f901a4-1784-4f68-bfd4-e6c69140c511) 
 ![image_720](https://github.com/user-attachments/assets/f6abe62b-07a4-4e0a-9478-47d98fc1f93a)
 
--progress pic 12 [file](https://hackclub.slack.com/files/U0594US6E73/F07EE1D0WG3/character_sheet.clip)
+- Progress pic 12 [file](https://hackclub.slack.com/files/U0594US6E73/F07EE1D0WG3/character_sheet.clip)
 
 ![image](https://github.com/user-attachments/assets/115e22bc-fc83-472f-ace6-f34efe9a0792)
+
+- Progress pic 14 [file](https://hackclub.slack.com/files/U0594US6E73/F07EEAJP1HQ/character_sheet.clip)
+
+![image_720](https://github.com/user-attachments/assets/8a9640db-a95f-415e-94c9-86f3ae5f4581)
+
+
 
