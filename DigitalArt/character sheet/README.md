@@ -44,5 +44,7 @@
 
 ![image_720](https://github.com/user-attachments/assets/8a9640db-a95f-415e-94c9-86f3ae5f4581)
 
+- Progress pic 15 [file](https://hackclub.slack.com/files/U0594US6E73/F07ETK6EWTT/character_sheet.clip)
 
+![image_480](https://github.com/user-attachments/assets/fa3758c7-8def-4b32-93de-b3b670a9540f)
 
