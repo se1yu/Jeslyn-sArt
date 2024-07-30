@@ -62,3 +62,7 @@
 - Progress pic 19 [file](https://hackclub.slack.com/files/U0594US6E73/F07EDTPT8AJ/character_sheet.clip)
 
  ![image_720](https://github.com/user-attachments/assets/587547c4-fb33-45c9-98d3-ee639a398294)
+
+- Progress pic 20[file](https://hackclub.slack.com/files/U0594US6E73/F07EE9PHCPQ/character_sheet.clip)
+![image_720](https://github.com/user-attachments/assets/12ecd2a1-fcbf-46f1-9c81-6472c39f2d75)
+
