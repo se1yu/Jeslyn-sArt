@@ -19,3 +19,7 @@ https://hackclub.slack.com/files/U0594US6E73/F07CQDSR2P4/thumbnail.clip
 
 ![image_720](https://github.com/user-attachments/assets/cd978413-c286-47f3-bc62-2d4e2035ae61)
 ![image_720](https://github.com/user-attachments/assets/689f9156-056e-4885-8727-7a09f12ad46d)
+
+
+- Add piano
+    
